@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @Pooja-nare01
-- 🌱 I’m currently learning programming and data science
 - 📫 How to reach me Pooja_nare01 insta account
 - 😄 Pronouns: she|her
 - ⚡ Fun fact: I am new to programming world|clumsy
